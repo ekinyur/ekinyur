@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ekinyur
+- 👀 I’m interested an Electrical and Electronics Engineer
